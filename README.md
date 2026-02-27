@@ -19,3 +19,6 @@
 
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=f26c86&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)　 <img src="https://files.catbox.moe/1gjdng.png" width="85" alt="yubiyubi!">
+
+
+<img src="https://files.catbox.moe/19vzbp.png" width="800" alt="yubiyubi!">
