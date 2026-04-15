@@ -1,13 +1,12 @@
 <img src="https://files.catbox.moe/qwgy4h.png" width="400" align="left" alt="kurukuru!">
 
- 
 <br>
 <br>
   <table>
     <tr>
       <td>
         <br>
-       　　　⁰ᨵᩥ⁰　 　　 $${\color{#e787a2}kiki}$$  　🦴　　　 $${\color{#e7b7b7}( ´ㅅ` Ｕ)ﾉｼ}$$  　⠀ $${\color{#e787a2}hyrshe}$$  ﹕<br>
+       　　　⁰ᨵᩥ⁰　 　　 $${\color{#e787a2}♱　 ̣\space𓈒}$$  $${\color{#e7b7b7}always \space the \space color \space pink}$$   $${\color{#e787a2} ִ ⑅\space ཀ˙}$$  ﹕<br>
          <br>
       </td>
     </tr>
