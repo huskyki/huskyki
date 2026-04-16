@@ -6,7 +6,7 @@
     <tr>
       <td>
         <br>
-         　 ⁰ᨵᩥ⁰　 $${\color{#e787a2}♱　 ̣\space𓈒}$$  $${\color{#e7b7b7}𝐬he𝒽yr⁴ᵗⁿ　𝒾nfpt}$$  $${\color{#e787a2} ִ ⑅\space ཀ˙}$$ 　　( ´ㅅ` Ｕ)ﾉｼ <br>
+         　 ⁰ᨵᩥ⁰　 $${\color{#e787a2}♱　 ̣\space𓈒}$$  $${\color{#e7b7b7}𝐬he𝒽yr¹⁴　𝒾nfpt}$$  $${\color{#e787a2} ִ ⑅\space ཀ˙}$$ 　　( ´ㅅ` Ｕ)ﾉｼ <br>
          <br>
       </td>
     </tr>
